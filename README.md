@@ -1,0 +1,2 @@
+# FriendlyAI
+cardi b
